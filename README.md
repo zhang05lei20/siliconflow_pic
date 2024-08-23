@@ -11,6 +11,5 @@
 
 ```
 
-![image](https://github.com/user-attachments/assets/2bb9192f-6373-4c19-bcc2-51fc2ca19171)
-
+![image](https://github.com/user-attachments/assets/a6895527-75cc-4729-a603-cd2cac3a9a5d)
 
